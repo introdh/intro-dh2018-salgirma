@@ -1,6 +1,7 @@
 Grant Workshop
 
 (1) Formulate the humanities question(s) guiding the project.
+
 What are some common themes of networks formed by artists? Record labels?  
 What are some common themes across decades of rap and R&B music? 
 
